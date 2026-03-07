@@ -18,11 +18,6 @@ invitation/invite [[Websites/yawn./you\|you]] all
 to be acknowledged
 
 and welcome invitation and respects
-\
-\
-\
-\
-\
-\
-	
+
+<br> <br> <br> <br> <br> 
 &emsp;&emsp;&emsp;&emsp;[(.)](https://www.instagram.com/evelynaraluen/?hl=en)
