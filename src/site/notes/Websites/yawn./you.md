@@ -10,12 +10,6 @@ of things that would never be quite expressed,
 where you yourself were never quite yourself
 
 and did not want nor have to be.
-\
-\
-\
-\
-\
-\
-\
-	
+
+<br> <br> <br> <br> <br> 
 &emsp;&emsp;&emsp;&emsp;[[Websites/yawn./motive\|motive]]
